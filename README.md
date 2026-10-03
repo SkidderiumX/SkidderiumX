@@ -1,9 +1,9 @@
-     *Halo pipo*
+     Halo pipo
   I am SkidderiumX <3
  A Part-time VibeCoder
 
 
-         * My In4*
+          MyInfo
 I played: MineCraft,minecraft,mc,am :3
 
   My IGN: ItzApple    (Legit)
